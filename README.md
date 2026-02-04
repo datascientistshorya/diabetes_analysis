@@ -101,5 +101,6 @@ ________________________________________
 Shorya Bisht
 Data Science | Analytics | AI Enthusiast
 Sharing practical, insight-driven data projects that make analytics meaningful.
+https://www.linkedin.com/in/shorya-bisht-a20144349/
 ________________________________________
 
